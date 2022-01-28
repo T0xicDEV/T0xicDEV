@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @T0xicDEV
+- 👀 I’m interested in going to bus
+- 🌱 I’m currently learning playing conter stirik
